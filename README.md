@@ -1,4 +1,4 @@
-# Fujii Kaze – Okay, Goodbye
+# 藤井 風 – Okay, Goodbye
 
 > **歌詞登録ステータス：同期歌詞あり**
 
